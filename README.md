@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Skikru
 - 👀 I’m interested most in coding and gaming =) 
-- 💞️ I’m looking to collaborate on a few easy projects to start with.
+- 💞️ I’m looking to collaborate on a few projects.
 
 
 
